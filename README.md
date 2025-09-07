@@ -1,1 +1,3 @@
-![ezgif-391679dcec9286](https://github.com/user-attachments/assets/497c0307-272a-44e7-90a1-b0dc86b4c30d)
+
+#  i hired this dolphin to stare at you !
+<img width="1080" height="1080" alt="teeee" src="https://github.com/user-attachments/assets/6f82f5c1-744d-4b2a-be8d-f77a4566d471" />
