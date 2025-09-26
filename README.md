@@ -1,3 +1,4 @@
 
 #  i hired this dolphin to stare at you !
-<img width="800" height="800" alt="staaare" src="https://github.com/user-attachments/assets/8112f1e0-92cb-4466-b5a7-3cc671105034" />
+<img width="600" height="600" alt="seongvjaoeg" src="https://github.com/user-attachments/assets/4d0d43af-1f57-402b-b282-72c4df3a4e4b" />
+
