@@ -1,3 +1,3 @@
 
 #  i hired this dolphin to stare at you !
-<img width="1080" height="1080" alt="sse" src="https://github.com/user-attachments/assets/fd12f672-c4da-49b1-b57f-a5881b2f3542" />
+<img width="676" height="1030" alt="dolphin" src="https://github.com/user-attachments/assets/ca57e8c1-bd6c-44e8-bcca-221b048e1e74" />
